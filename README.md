@@ -9,6 +9,7 @@ Meu nome é Davi Israel
 ###Como entrar em contato comigo 
 
 daviisrael0010@gmail.com
-Davi Israel 
+
+@daviisrael
 
 
